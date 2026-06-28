@@ -1,4 +1,4 @@
-# 
+# مخصص Bitdefender Total Security سير العمل لـ Mac OS | توربو Bitdefender Total Security سير العمل لـ PC Windows. مع المسح المجدول و المسح السحابي — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
